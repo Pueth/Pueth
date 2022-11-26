@@ -1,5 +1,5 @@
 - 👋 Hola, mi nombre es @Pueth
-- 👀 Estoy interesado en proyectos.
+- 👀 Estoy centrado en proyectos.
 - 🌱 Actualmente estoy aprendiendo desarrollo
 - 💞️ Estoy buscando colaborar con empresas
 - 📫 Para poder contactar hablar a mi Privado de Discord Pueth #9657
